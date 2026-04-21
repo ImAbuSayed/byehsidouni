@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حبيبي نور قلبي في الظلام
+> أنت روحي وأنت لحن الغرام
+> بين عيني والنجوم ألف آه
+> خذ يدي نمضي إلى بر السلام
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
